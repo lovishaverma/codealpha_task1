@@ -1,2 +1,2 @@
 # codealpha_task1
-Digital Marketing &amp; Branding Internship Tasks – CodeAlpha
+Task 1 – Social Media Campaign
